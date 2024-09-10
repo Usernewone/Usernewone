@@ -2,7 +2,7 @@
 - 👀 I’m interested in Frontend
 - 🌱 I’m currently learning HTML for starting
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Phueng024755@gmail.com
+- 📫 How to reach me .
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Don't know anything ,still learning.
 
